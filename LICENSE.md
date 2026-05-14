@@ -1,4 +1,4 @@
-#  
+#  Experience shrink for brainrots like never before with shrink for brainrots vip Script, the #1 Script. Includes anti-ban and auto-sell for unbeatable
 
 
 
